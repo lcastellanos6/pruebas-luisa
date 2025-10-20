@@ -1,7 +1,7 @@
 # Documentacio
 
 > Luisa Castellanos
-> 10/10/2025
+> 10 Octubre 2025
 > INS Mollerussa
 
 Fin de documentacion
